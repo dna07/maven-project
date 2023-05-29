@@ -1,3 +1,1 @@
-Hello, Welcome to great leaders from Bangalore
-IT jobs in Banglore
-Pune
+Hello, Welcome to great leaders from from Bangalore
